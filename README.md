@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @eium
+- I'm CEO of Euthymia !
